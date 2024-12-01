@@ -1,2 +1,3 @@
 # GYAtt
 want 2 vibe less and grind more?  If you ain't on a productive app, prepare for a meme explosion, bruzz! Random memes gon' fill up your screen, and they ain't going nowhere until....
+until you drop a (🫢) into the mic, typshi to clear that screen like a sigma move, ya feel? Skibidi vibes only!
